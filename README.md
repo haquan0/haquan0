@@ -29,7 +29,7 @@
 
 ### 📫 Let's Connect
 
-- 📩 Email: [hakankose2712@gmail.com](mailto:hakankose2712@gmail.com)  
+- 📩 [hakankose2712@gmail.com](mailto:hakankose2712@gmail.com)  
 - 💼 [LinkedIn](https://www.linkedin.com/in/hakan-selçuk-köse-7a1364320)
 
 ---
